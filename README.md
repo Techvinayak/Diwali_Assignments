@@ -1,2 +1,0 @@
-# Diwali-Assignments
-Diwali Assignments
